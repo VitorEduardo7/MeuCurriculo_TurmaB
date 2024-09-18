@@ -1,1 +1,1 @@
-# MeuCurriculo_TurmaB
+# MeuCurr-culo
